@@ -61,7 +61,7 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
-
+- (added ingredient Extra Roma Tomatoes)
 Instructions:
 1. Cook spaghetti according to package instructions.
 2. In a mixing bowl, combine ground beef, bread crumbs, milk, Parmesan cheese, egg, garlic, salt, and pepper.
