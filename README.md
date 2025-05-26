@@ -116,3 +116,23 @@ Instructions:
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
 
+My own New Recipe!!!!!!!
+
+Pound Banana cake 
+1lb sugar
+1lb flour
+1lb banana
+2tsp baking flour
+4 eggs
+1tsp vanilla
+1 stick butter
+
+preheat oven to 375 degrees 
+melt butter
+mix all dry ingredients in 1 container but make sure to sift them well to avoid lumps
+mix wet ingredients afterwards
+add butter and eggs
+mix well until incorporated
+prepare the pan and put it in the oven
+cook for 40 minutes
+enjoy!
