@@ -49,7 +49,7 @@ Instructions:
 5. Top each toasted baguette slice with the tomato mixture.
 
 ## Entrees
-### Spaghetti and Meatballs
+1kg Spaghetti and Meatballs
 
 Ingredients:
 - 1 pound spaghetti
@@ -61,7 +61,7 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
-
+- (added ingredient Extra Roma Tomatoes)
 Instructions:
 1. Cook spaghetti according to package instructions.
 2. In a mixing bowl, combine ground beef, bread crumbs, milk, Parmesan cheese, egg, garlic, salt, and pepper.
@@ -116,3 +116,23 @@ Instructions:
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
 
+My own New Recipe!!!!!!!
+
+Pound Banana cake 
+1lb sugar
+1lb flour
+1lb banana
+2tsp baking flour
+4 eggs
+1tsp vanilla
+1 stick butter
+
+preheat oven to 375 degrees 
+melt butter
+mix all dry ingredients in 1 container but make sure to sift them well to avoid lumps
+mix wet ingredients afterwards
+add butter and eggs
+mix well until incorporated
+prepare the pan and put it in the oven
+cook for 40 minutes
+enjoy!
