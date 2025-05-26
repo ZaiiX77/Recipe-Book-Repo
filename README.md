@@ -92,7 +92,7 @@ Instructions:
 6. Assemble sandwiches with chicken, lettuce, tomato, and mayonnaise.
 
 ## Desserts
-### Chocolate Chip Cookies
+12 Chocolate Chip Cookies for the family
 
 Ingredients:
 - 2 1/4 cups all-purpose flour
