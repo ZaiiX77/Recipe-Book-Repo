@@ -49,7 +49,7 @@ Instructions:
 5. Top each toasted baguette slice with the tomato mixture.
 
 ## Entrees
-### Spaghetti and Meatballs
+1kg Spaghetti and Meatballs
 
 Ingredients:
 - 1 pound spaghetti
